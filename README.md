@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development and cybersecurity 
 - 🌱 I’m currently learning ICT
 - 💞️ I’m looking to collaborate on beginner friendly projects
-- 📫 How to reach me hopemdluli0@gmail.com
+- 📫 How to reach me mdlulihope05@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I don't know 
 
